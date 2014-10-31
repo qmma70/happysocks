@@ -1,3 +1,3 @@
 happysocks
 ==========
-http://www.maqiming.com/?p=6
+http://www.qimingma.com/?p=6
